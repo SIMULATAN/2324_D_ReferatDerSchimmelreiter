@@ -162,6 +162,13 @@ Jakob Hofer
 ## Inhalt
 - 1\. November 1756
 - Hauke reitet los, um Deiche zu kontrollieren
+
+## Leseprobe
+
+---
+
+## Inhalt
+
 - findet Arbeiter, die seinen Deich durchstechern
   - veranlasst von Ole Peters
   - Versuch, Druck von altem Deich zu nehmen
